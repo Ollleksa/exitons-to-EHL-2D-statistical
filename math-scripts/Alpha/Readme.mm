@@ -1,1 +1,0 @@
-Dependence on condensation energy
